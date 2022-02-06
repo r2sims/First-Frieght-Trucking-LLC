@@ -1,2 +1,2 @@
-# First-Frieght-Trucking-LLC
+# First-Freight-Trucking-LLC
 Melvins Website
